@@ -1,4 +1,5 @@
-![Wave Mudado2](https://user-images.githubusercontent.com/48588172/178347675-4a30abe2-ada9-4161-80e4-6a29f2d6518d.png)
+![Wave Mudado3](https://user-images.githubusercontent.com/48588172/178348859-eed821eb-4e95-4acf-a3d5-abef5325d0f1.png)
+
 
 <!--
 ### Hi there 👋
